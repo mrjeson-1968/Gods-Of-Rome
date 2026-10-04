@@ -212,4 +212,4 @@ Gods of Rome is the **full free version** of the game, including all features an
 Download **Gods of Rome** today and embark on an epic journey filled with thrilling battles and legendary characters!
 
 ---
-**Last updated:** 2026-10-04 14:39:03 UTC
+**Last updated:** 2026-10-04 18:28:05 UTC
